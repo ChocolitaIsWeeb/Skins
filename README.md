@@ -17,3 +17,9 @@ A list of my skins
 
 
 [ChocolitaBestPlayerV2](https://www.mediafire.com/file/p42240w8ys4ykns/ChocolitaBestPlayerV2.osk/file)![screenshot066](https://user-images.githubusercontent.com/117683964/200967146-bf326509-c5d9-42d2-b910-af1420c47ccc.jpg)
+
+
+
+
+
+[ChocolitaBestPlayer](https://www.mediafire.com/file/wpbsrej34xwxglu/ChocolitaBestPlayer.osk/file)![screenshot067](https://user-images.githubusercontent.com/117683964/200967344-31ca4d55-fe1b-4344-b191-c5a7aeaf0780.jpg)
