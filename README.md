@@ -29,3 +29,9 @@ A list of my skins
 
 
 [Chocolita 2022](https://www.mediafire.com/file/lu3xepl74gusdc3/Chocolita_2022.osk/file)![screenshot068](https://user-images.githubusercontent.com/117683964/200967574-2ee29911-d6ea-462a-b331-98834c0ec781.jpg)
+
+
+
+
+
+[ChocoDT](https://www.mediafire.com/file/u1f5c56q1ezioi7/ChocoDT.osk/file)![screenshot069](https://user-images.githubusercontent.com/117683964/200967780-7a4478c6-f22c-4ecc-b431-dbbf20575483.jpg)
