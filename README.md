@@ -1,6 +1,8 @@
 # Skins
-A list of my skins
+A list of my skins.
 
+
+Some skins are private and may not be here.
 
 
 
