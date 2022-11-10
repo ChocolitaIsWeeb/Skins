@@ -35,3 +35,9 @@ A list of my skins
 
 
 [ChocoDT](https://www.mediafire.com/file/u1f5c56q1ezioi7/ChocoDT.osk/file)![screenshot069](https://user-images.githubusercontent.com/117683964/200967780-7a4478c6-f22c-4ecc-b431-dbbf20575483.jpg)
+
+
+
+
+
+[ChocoClassic](https://www.mediafire.com/file/c34q5raj1je7rmy/ChocoClassic.osk/file)![screenshot060](https://user-images.githubusercontent.com/117683964/200968048-594a7439-f05e-45eb-b9f1-e9b194c12570.jpg)
