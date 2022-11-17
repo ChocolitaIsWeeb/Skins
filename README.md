@@ -2,8 +2,8 @@
 A list of my skins.
 
 
-Some skins are private and may not be here.
 
+Some skins are private and may not be here.
 
 
 I know the numbers are scuffed I don't really care because play with hud off
