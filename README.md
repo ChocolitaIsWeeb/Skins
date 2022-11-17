@@ -7,6 +7,11 @@ Some skins are private and may not be here.
 
 
 
+[Chocolita my fav player](https://www.mediafire.com/file/oe7b700w4w0eux5/Chocolita_my_fav_player.osk/file)![screenshot072](https://user-images.githubusercontent.com/117683964/202396119-c86abcd3-651b-4b5c-af40-a91d185a03f7.jpg)
+
+
+
+
 [ChocolitaBestPlayerV4](https://www.mediafire.com/file/2vpev03t3pi81la/ChocolitaBestPlayerV4.osk/file)![screenshot062](https://user-images.githubusercontent.com/117683964/200966516-927e9723-34e4-4fec-9790-a7b31ec6a9f4.jpg)
 
 
