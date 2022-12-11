@@ -6,6 +6,10 @@ Some skins are private and may not be here.
 
 
 
+[Chocolita my fav player V2](https://www.mediafire.com/file/bfd6vd7j0mda6ne/Chocolita_my_fav_player_V2.osk/file)
+
+
+
 
 I know the numbers are scuffed I don't really care because play with hud off.
 [Chocolita my fav player](https://www.mediafire.com/file/oe7b700w4w0eux5/Chocolita_my_fav_player.osk/file)![screenshot072](https://user-images.githubusercontent.com/117683964/202396119-c86abcd3-651b-4b5c-af40-a91d185a03f7.jpg)
