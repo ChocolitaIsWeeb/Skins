@@ -6,6 +6,14 @@ Some skins are private and may not be here.
 
 
 
+
+[Lita CTB](https://www.mediafire.com/file/9xkimd41dk5bzmv/Lita_CTB.osk/file)![screenshot062](https://user-images.githubusercontent.com/117683964/232940679-da02147a-894a-48a7-939e-d417783a5f65.png)
+
+
+
+
+
+
 [Chocolita my fav player V2](https://www.mediafire.com/file/3on6i7cj9paxsu9/Chocolita_my_fav_player_V2.osk/file)![screenshot126](https://user-images.githubusercontent.com/117683964/206932490-9c8faae4-f9fd-4b15-ac69-a8cac0a5ee1f.jpg)
 
 
