@@ -7,7 +7,7 @@ Some skins are private and may not be here.
 
 
 
-[Lita CTB](https://www.mediafire.com/file/9xkimd41dk5bzmv/Lita_CTB.osk/file)![screenshot062](https://user-images.githubusercontent.com/117683964/232940679-da02147a-894a-48a7-939e-d417783a5f65.png)
+[Lita CTB OUTDATED](https://www.mediafire.com/file/9xkimd41dk5bzmv/Lita_CTB.osk/file)![screenshot062](https://user-images.githubusercontent.com/117683964/232940679-da02147a-894a-48a7-939e-d417783a5f65.png)
 
 
 
